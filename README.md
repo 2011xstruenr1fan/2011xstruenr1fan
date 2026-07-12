@@ -2,7 +2,7 @@
 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠  ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠⠀󠀠 ⠀󠀠 
 ![image alt](https://github.com/bassslutz/bassslutz/blob/00db3edb7cf14e1c6e7e61a8e46d53dcf2e9826e/Untitled109_20260526191202.png)
 <p align="center">
-tiffany ㅤㅤ/   ㅤㅤcadance
+tiffany ㅤㅤ  ㅤㅤ
 </p>
 <p align="center">
 
