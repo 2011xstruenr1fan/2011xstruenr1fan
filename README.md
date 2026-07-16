@@ -2,8 +2,23 @@
 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠  ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠⠀󠀠 ⠀󠀠 
 ![image alt](https://github.com/2011xstruenr1fan/2011xstruenr1fan/blob/7da510fa820dd5a0c5b5ab9139fbd65e2e121c01/Untitled246_20260715225258.png)
 <p align="center">
-ㅤㅤㅤㅤㅤㅤtiffany ㅤㅤ  ㅤㅤ
+ㅤㅤㅤㅤㅤㅤ ㅤㅤ  ㅤㅤ
 </p>
 <p align="center">
+${\textsf{\color{#dfcce5} 𓈒 }}$ 　 ${\textsf{\color{#C5688F} ∿ }}$　 ${\textsf{\color{#dfcce5} tiffany }}$　 ${\textsf{\color{#834dbe}  }}$　 ${\textsf{\color{#be8bd5}  }}$
+ 
+   　![](?)　　bye　　 ${\textsf{\color{#C5688F} wip }}$⠀　 ${\textsf{\color{#be8bd5} hi }}$
+    
+　　𓈒　 ${\textsf{\color{#be8bd5}  }}$　[**rentrywiptoo**](https://rentry.co/MACE-ATTACK)　[新booktoo!](https://ultimatecrush.atabook.org/)　![](https://pixels.crd.co/assets/images/gallery101/85237eef.pn?v=29416114)　ʾ
+ <br>
+  <br>
+  <table>
+    <tr>
+      <td>   
+${\textsf{\color{#C5688F} have }}$  ${\textsf{\color{#dfcce5} no }}$ ${\textsf{\color{#834dbe} fear! }}$ amy ${\textsf{\color{#dfcce5} rose ‎ ‎  is ‎ ‎  here }}$
+      </td>
+    </tr>
+  </table>
+   <br>
 
 ⠀ ⠀⠀
