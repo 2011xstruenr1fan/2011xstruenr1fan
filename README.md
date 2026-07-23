@@ -1,6 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=2011xstruenr1fan&color=ff0808&label=ֺּ𓏫𓏼˚̣̣̣𓈒݂݂✙﹒) ![](https://github.com/2011xstruenr1fan/2011xstruenr1fan/blob/829bc5a1f12f574e8ca5029ff4839e59a9864299/my-husband-my-love.gif)
 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠  ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠⠀󠀠 ⠀󠀠 
-![image alt](https://github.com/2011xstruenr1fan/2011xstruenr1fan/blob/4124109bd98dad39e206dd9a04fbea060848087c/Untitled224_20260720000334.png)
+![image alt](https://github.com/2011xstruenr1fan/2011xstruenr1fan/blob/76b16e2a2963f722200ad8f459700cca893da142/Untitled258_20260723113450.png)
 <p align="center">
 ㅤㅤㅤㅤㅤㅤ ㅤㅤ  ㅤㅤ
 </p>
