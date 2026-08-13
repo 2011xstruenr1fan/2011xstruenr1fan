@@ -14,16 +14,5 @@ ${\textsf{\color{#c42929} ‎ ‎ iwec if 18+ }}$⠀　 ${\textsf{\color{#870c0c
  <br>
  <br>
  <br>
-  <br>
-  <table>
-    <tr>
-      <td>   
-${\textsf{\color{#c42929} ready }}$  ${\textsf{\color{#870c0c}
-or }}$ ${\textsf{\color{#a11b1b} not... }}$  
-     ${\textsf{\color{#f70f0f}  here}}$ ${\textsf{\color{#870c0c} i ‎ ‎  COME ‎ ‎  ! }}$
-      </td>
-    </tr>
-  </table>
-   <br>
 
 ⠀ ⠀⠀
