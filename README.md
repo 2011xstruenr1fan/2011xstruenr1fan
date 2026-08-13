@@ -10,7 +10,7 @@ ${\textsf{\color{#dfcce5} 𓈒 }}$ 　 ${\textsf{\color{#f70f0f} ∿ }}$　 ${
    　![](https://github.com/2011xstruenr1fan/2011xstruenr1fan/blob/8c0ec2e6c26a7fe4f0e880336c0f118aeadff0af/36782b19.gif)　 ${\textsf{\color{#a11b1b} 14yrs  　 }}$ 
 ${\textsf{\color{#c42929} ‎ ‎ iwec if 18+ }}$⠀　 ${\textsf{\color{#870c0c} eng only}}$
     
-　‎ ‎ 　𓈒　‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ${\textsf{\color{#be8bd5}  }}$　[**r**e꯭ntr*y*](https://rentry.co/tiffanyloves2011X) [新***ata***book](https://2o1lx.atabook.org/)　ㅤㅤ![](https://github.com/2011xstruenr1fan/2011xstruenr1fan/blob/3b3303e18ad2dcc5e74e578d7adecbe6a7197c30/24a14b91.gif)　
+　‎ ‎ 　𓈒　‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ${\textsf{\color{#be8bd5}  }}$　[**rentry wip**](https://rentry.co/yothisisawipamigochan) [新***ata***book](https://2o1lx.atabook.org/)　ㅤㅤ![](https://github.com/2011xstruenr1fan/2011xstruenr1fan/blob/3b3303e18ad2dcc5e74e578d7adecbe6a7197c30/24a14b91.gif)　
  <br>
  <br>
  <br>
